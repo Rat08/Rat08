@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @Rat08
-- 👀 I’m interested in Machine Learning & Raspberry PI's
-- 🌱 I’m currently learning different Algorithms along with Python
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+cvpbPGS, fgngvfgvpny yrneavat, naq zngurzngvpf arjovr
+erzbgryl vagryyvtrag, fyvtugyl yvgrengr, irel vagb gvaltenq
